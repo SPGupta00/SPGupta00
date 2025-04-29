@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SPGupta00
-- 👀 I’m interested in nothing.
+- 👀 I’m interested in everything.
 - 🌱 I’m currently learning Oracle
 - 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me ....
